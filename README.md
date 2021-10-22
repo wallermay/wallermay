@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wallermay
-- 👀 I’m interested in music and badminte
-- 🌱 I’m currently learning ecenonmy
+- 👀 I’m interested in music and badminton
+- 🌱 I’m currently learning finance
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
